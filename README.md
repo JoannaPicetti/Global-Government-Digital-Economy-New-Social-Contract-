@@ -13,7 +13,7 @@
 New E-Global Government on the entire Planet Earth.  
 
 
-Digital Economy - New social Contract
+BITCOIN ECONOMY - New Social Contract
 
 
 # The world is changing in every sense: 
@@ -40,19 +40,19 @@ BUILD A NEW SOCIAL CONTRACT
 (For all, the entire humankind, 8 Billion human beings)   
 
 
-Created by common people, US, not from politicians.   
+Created by common people, US, not by politicians.   
 
 
-We believe alltogether can write this on the Blockchain by Smart Contracts. 
+We believe all together can write and sign this on the Blockchain trough Smart Contracts. 
 
 
 People, don’t trust in anything. 
 
-Don’t trust in Govs, Don’t trust in politicians, Don’t trust in multinationals companies.  
+Don’t trust in Govs, Don’t trust in politicians, Don’t trust in multinationals, Don't trust in media.....
 
 
 
-We believe in digital, We believe exponential technologies will give us the tools to heal the planet after this Crisis and to give freedom to people to lead the world together.   
+We believe in digital, We believe exponential technologies will give us the tools to heal the planet after this Crisis and to give freedom and power to the people to lead the world together.   
 
 
 
@@ -62,15 +62,15 @@ We believe in digital, We believe exponential technologies will give us the tool
 
 Once upon a time, there was a terrible pandemic that paused life around the world as people from different cultures felt suddenly 
 
-taken away from the life they know, that was comfortable.  
+taken away from the life they knew, that was comfortable.  
 
-Every day…. people found connection through news from those in the family, friends, and in the headlines they read about how we were all affected similarly
+Every day…. people found connection through news from those in the family and friends, and in the headlines they read about how we were all affected similarly
 
 and what actions we had to take to be safe.  
 
 Then One day… the strength of that connection with others grew so strong that it overpowered the nay-sayers, government officials, and authorities trying to return
 
-to a time where white men and the ruling class had unquestioned power.   
+to a time when white men and the ruling class had unquestioned power.   
 
 
 
@@ -82,9 +82,9 @@ For fans of the multilateral world order, this week has been the most important 
 
 It started on June 11 with the G7 Summit in England, where among other things the leaders of seven of the world's leading democracies agreed on a global 
 
-minimum corporate tax rate and committed to vaccinate the world.  
+minimum corporate tax rate and committed to vaccinating the world.  
 
-Three days later, the leaders of the NATO (Nort Atlantic Treaty organization) countries met in Bruselas, where they laid plans to build an infrastructure 
+Three days later, the leaders of the NATO (North Atlantic Treaty Organization) countries met in Bruselas, where they laid plans to build an infrastructure 
 
 project to rival China's Belt and Road Initiative 
 
@@ -112,13 +112,13 @@ As Henry Kissinger warned, “When statesmen want to gain time, they offer to ta
 
 WE THE PEOPLE. We have to ACT. (Creating a Global Digital Government) 
 
-It's the turn of others countries as well, not only G7 States.
+It's the turn of other countries as well, not only G7 States.
 
 
 
 To do this, we are starting to unify the entire world with Special Economic zones first,
 
-ike European Economic Community but starting from small countries, of course, the most ambitious goal is to unify the entire planet earth at the end. 
+like the European Economic Community but starting from small countries, of course, the mission is to unify the entire planet earth.
 
 Yet we have to start joining little by little first.    
 
@@ -131,8 +131,10 @@ Global Planet E-Residence. Global digital Government on the entire planet Earth.
 
 Digitalizing Governments, digitalizing citizens around the world. 
 
-The purpose is to give freedom to people. 
+The purpose is to give freedom and power to the people. 
 
-Everyone belonging to the same reliable digital jurisdiction, THE EARTH.
+Everyone belongs to the same reliable digital jurisdiction, THE EARTH.
+
+
 
 
