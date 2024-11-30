@@ -60,17 +60,11 @@ We believe in digital, We believe exponential technologies will give us the tool
 # Little Storytelling:  
 
 
-Once upon a time, there was a terrible pandemic that paused life around the world as people from different cultures felt suddenly 
+Once upon a time, there was a terrible pandemic that paused life around the world as people from different cultures felt suddenly taken away from the life they knew, that was comfortable.  
 
-taken away from the life they knew, that was comfortable.  
+Every day…. people found connection through news from those in the family and friends, and in the headlines they read about how we were all affected similarly and what actions we had to take to be safe.  
 
-Every day…. people found connection through news from those in the family and friends, and in the headlines they read about how we were all affected similarly
-
-and what actions we had to take to be safe.  
-
-Then One day… the strength of that connection with others grew so strong that it overpowered the nay-sayers, government officials, and authorities trying to return
-
-to a time when white men and the ruling class had unquestioned power.   
+Then One day… the strength of that connection with others grew so strong that it overpowered the nay-sayers, government officials, and authorities trying to return to a time when white men and the ruling class had unquestioned power.   
 
 
 
@@ -80,13 +74,9 @@ to a time when white men and the ruling class had unquestioned power.
 
 For fans of the multilateral world order, this week has been the most important week about it.  
 
-It started on June 11 with the G7 Summit in England, where among other things the leaders of seven of the world's leading democracies agreed on a global 
+It started on June 11 with the G7 Summit in England, where among other things the leaders of seven of the world's leading democracies agreed on a global minimum corporate tax rate and committed to vaccinating the world.  
 
-minimum corporate tax rate and committed to vaccinating the world.  
-
-Three days later, the leaders of the NATO (North Atlantic Treaty Organization) countries met in Bruselas, where they laid plans to build an infrastructure 
-
-project to rival China's Belt and Road Initiative 
+Three days later, the leaders of the NATO (North Atlantic Treaty Organization) countries met in Bruselas, where they laid plans to build an infrastructure project to rival China's Belt and Road Initiative 
 
 On June 15 US president Joe Biden held a summit with EU leaders  
 
@@ -118,7 +108,7 @@ It's the turn of other countries as well, not only G7 States.
 
 To do this, we are starting to unify the entire world with Special Economic zones first,
 
-like the European Economic Community but starting from small countries, the mission is to unify the entire planet earth.
+like the European Economic Community but starting from small countries, of course, the mission is to unify the entire planet earth.
 
 Yet we have to start joining little by little first.    
 
