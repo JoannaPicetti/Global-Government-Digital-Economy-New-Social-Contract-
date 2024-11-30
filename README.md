@@ -80,7 +80,7 @@ Three days later, the leaders of the NATO (North Atlantic Treaty Organization) c
 
 On June 15 US president Joe Biden held a summit with EU leaders  
 
-After that, European leaders got a breather, but Biden went on to Switzerland, to meet on June 16 Vladimir Putin, the Russian president.  
+After that, European leaders got a halt, but Biden went on to Switzerland, to meet on June 16 Vladimir Putin, the Russian president.  
 
 
 # WHAT DOES IT ALL MEAN? 
