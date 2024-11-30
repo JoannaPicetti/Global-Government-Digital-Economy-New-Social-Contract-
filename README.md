@@ -13,7 +13,7 @@
 New E-Global Government on the entire Planet Earth. 
 
 
-BITCOIN GOVERNMENT - BITCOIN ECONOMY - NEW SOCIAL CONTRACT
+BITCOIN ECONOMY - NEW SOCIAL CONTRACT
 
 
 # The world is changing in every sense: 
