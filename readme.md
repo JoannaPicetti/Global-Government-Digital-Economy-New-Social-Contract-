@@ -14,7 +14,7 @@ Are people well informed, are people thinking critically, objetively?
 
 We always need to come back to....
 
-When we go from the wisdom of Crowds to the madness of Crowds...?
+Where do we go from the wisdom of Crowds to the madness of Crowds...?
 
 
 
