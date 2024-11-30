@@ -10,10 +10,10 @@
 # Vision of the project: 
 
 
-New E-Global Government on the entire Planet Earth.  
+New E-Global Government on the entire Planet Earth. 
 
 
-BITCOIN ECONOMY - New Social Contract
+BITCOIN GOVERNMENT - BITCOIN ECONOMY - NEW SOCIAL CONTRACT
 
 
 # The world is changing in every sense: 
@@ -95,7 +95,7 @@ After that, European leaders got a breather, but Biden went on to Switzerland, t
 
 # WHAT DOES IT ALL MEAN? 
 
-other than that the White House advance team probably needs a vacation? It’s hard to say...  
+other than that the White House advance team probably needs a vacation. It’s hard to say...  
 
 But there is too much riding on these meetings. 
 
@@ -118,7 +118,7 @@ It's the turn of other countries as well, not only G7 States.
 
 To do this, we are starting to unify the entire world with Special Economic zones first,
 
-like the European Economic Community but starting from small countries, of course, the mission is to unify the entire planet earth.
+like the European Economic Community but starting from small countries, the mission is to unify the entire planet earth.
 
 Yet we have to start joining little by little first.    
 
@@ -134,6 +134,9 @@ Digitalizing Governments, digitalizing citizens around the world.
 The purpose is to give freedom and power to the people. 
 
 Everyone belongs to the same reliable digital jurisdiction, THE EARTH.
+
+
+# BITCOIN UNITES THE WORLD
 
 
 
