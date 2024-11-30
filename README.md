@@ -126,7 +126,7 @@ The purpose is to give freedom and power to the people.
 Everyone belongs to the same reliable digital jurisdiction, THE EARTH.
 
 
-# BITCOIN UNITES THE WORLD
+
 
 
 
